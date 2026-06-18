@@ -66,5 +66,6 @@ gelmez; yalnızca henüz yeterince yaygın indirilmediği içindir. Açmak için
 ## İletişim
 
 Web: <https://tahlis.com.tr> · GOLD DATA Teknoloji
+Detaylı Bilgi: https://www.goldverikurtarma.com/disk-nabiz
 
 © 2026 GOLD DATA Teknoloji — Tüm hakları saklıdır.
